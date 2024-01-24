@@ -76,5 +76,5 @@
 - Channel TM : [Trans-IT H2H](https://t.me/transith2h)
 - Digiflazz : [PT Multi Makmur Teknologi](https://digiflazz.com/seller/Wy7L9o)
     
-> _**Head Office :**_
+> **Head Office :** 
 The Savoy B2 33B, RT.18 RW.14, Kel. Cakung Timur Kec. Cakung, Jakarta Garden City, Cakung Jakarta Timur, 13910 
