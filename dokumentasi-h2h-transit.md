@@ -70,8 +70,8 @@
     TIMEOUT KAKAK!!!TUVBM9X Ke 309306959841 >>> COBA NOMINAL LAIN/ULANGI 15 MENIT KEMUDIAN Saldo: -1.836.777.| INFO : WA CENTER KE NOMER BERIKUT | 0859-6315-4014 | 0858-9349-6963 | 0815-6346-2428
     ```
 ### CS Online 24 Jam
-    > CS. Telegram : [@Transit_Payment](https://t.me/Transit_Payment)
-    > CS. WhatsApp : [0899-2553-333](https://t.me/Transit_Payment)
+    CS. Telegram : [@Transit_Payment](https://t.me/Transit_Payment).
+    CS. WhatsApp : [0899-2553-333](https://t.me/Transit_Payment).
 
 Channel TM : [Trans-IT H2H](https://t.me/transith2h)
 Digiflazz : [PT Multi Makmur Indonesia](https://digiflazz.com/seller/Wy7L9o)
